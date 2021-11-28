@@ -1,2 +1,2 @@
 # GAMF-verseny-2-fordulo
-asd
+26/29
